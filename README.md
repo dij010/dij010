@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dij010
-- 👀 I’m interested in listening music all day long
+- 👀 I’m interested in listening !
 - 🌱 I’m currently learning AI &ML,Apps !
-- 💞️ I’m looking to collaborate on anything can help me to established a wonderful apps!
+- 💞️ I’m looking to make a wonderful apps!
 - 📫 How to reach me can via:dijnews000@gmail.com 
 
 <!---
